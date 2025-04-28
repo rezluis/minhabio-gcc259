@@ -2,6 +2,8 @@
 
 # Luis Felipe Silva Rezende
 
+<img src="https://media.licdn.com/dms/image/v2/D4D03AQFOKdM9QInBgQ/profile-displayphoto-shrink_800_800/profile-displayphoto-shrink_800_800/0/1674174515356?e=1751500800&v=beta&t=bWePF7LPGUB69U5iHziwZXdFzF2ubQk0rHc9O3Hs5LY" alt="Luis Felipe Silva Rezende" width="120"/>
+
 📍 Lavras – MG  
 📱 (35) 99958-2058  
 📧 [luis.silvarezende23@gmail.com](mailto:luis.silvarezende23@gmail.com)  
